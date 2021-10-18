@@ -1,0 +1,9 @@
+- 🔭 I’m currently working on my mental health
+- 🌱 I’m currently learning how not to blow up on someone
+- 👯 I’m looking to collaborate on anything easy lol
+- 🤔 I’m looking for help with my health lmao
+- 💬 Ask me about me
+- 📫 How to reach me: Text me
+- 😄 Pronouns: He/They/Him
+- ⚡ Fun fact: I am 13 years old with a VERY dirty mind and mouth
+--> I wish my mother loved me...
